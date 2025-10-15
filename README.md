@@ -11,6 +11,4 @@ We strive for innovation and quality, paying attention to details and feedback f
 
 We hope that our project will be useful and inspiring for you!
 
-Our creators - @kolen44 and @danik999q 
-
 ## We hope you are already a part of the community of our games 😎
